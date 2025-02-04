@@ -87,7 +87,7 @@
 ### **13. No Cheating or Exploiting**
 
 - **Do not promote or engage in any form of cheating, exploiting, or hacking** in any game.
-- GameBoost Services promotes fair play and does not support unethical behavior.
+- Drexware Services promotes fair play and does not support unethical behavior.
 
 
 By being a part of the Drexware community, you agree to follow these rules and create a positive environment for everyone. Thank you for your cooperation!
